@@ -6,5 +6,16 @@ task 1
 
 //code fort vasyllll
 enkjdfbjkfbk,jfbsl,
+
+as
+
+das
+d
+a
+asd
+d
+as
+sd
+
 sdlknlfknsdlkfnfkl.;sdnf.k
 sdn,l.fksdnnlkffldksnfdlk/n
